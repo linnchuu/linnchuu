@@ -1,4 +1,4 @@
-**꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷** <h3 align="left">![aggron_sprite-ezgif com-resize](https://github.com/user-attachments/assets/d4e08658-72f4-4797-a398-dc5d0a11f3d1)</h3>
+**꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷** <h3 align="left">![aggron_sprite-ezgif com-resize](https://github.com/user-attachments/assets/45c7476f-3c8e-45c8-bd7c-c802cda6eaf4)</h3>
 
 
 
